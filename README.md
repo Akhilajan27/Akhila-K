@@ -1,4 +1,4 @@
-# Akhila-K
+# AKHILA K
 ## Hi, I'm Akhila 👋
 
 🎓 M.Tech in Computer & Information Science  
